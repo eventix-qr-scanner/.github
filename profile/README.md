@@ -104,7 +104,7 @@ Need custom features or integrations?
 - Performance optimization
 
 📩 Contact us for customization:
-- Email: **hire@somnest.com**
+- Email: **mohasantanaas@gmail.com**
 - WhatsApp: **Available on request**
 
 > Customization services are **not included** in free item support.
